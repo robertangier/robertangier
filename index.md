@@ -4,6 +4,8 @@ layout: default
 
 **This webpage contains my notes on Tenet (as of December 13 2020).** 
 
+* * *
+
 **TLDR: Most of the 'rules' to 'feel' Tenet are in the first few minutes before 'TENET' is shown on the screen.** 
 
 **#1: Muffled dialogues? Nolan was being cheeky. They are moments when we are watching "inverted" versions of actors**. I find it ludicrous to assume that someone like Nolan would allow sub-par bits in his work. 
@@ -12,7 +14,10 @@ layout: default
 
 **#3: Tenet actually ends once the Protagonist consumes the cyanide pill.** The rest of the movie? All of it happens from the siege at the Opera house until the Protagonist munching on the pill.  
 
-__I do not claim that I am the first one to note them. However, I wish to hear your opinions, especially if I am wrong. I am here to be told how I could be wrong.__ 
+* * *
+__I do not claim that I am the first one to note them. However, I wish to hear your opinions, especially if I am wrong. I am here to learn.__ 
+
+* * *
 
 **Note for #1**
 I believe that Nolan's choice to have those few 'not so audible dialogues' is intentional. My guess? They are moments when we are seeing the 'inverted' versions of the characters. Why is the Protagonist crystal clear when he speaks to his team in the Opera room with his helmet on, but has to repeat the code sentence when he's talking to the VIP in a sound friendly room?  
@@ -20,12 +25,14 @@ I believe that Nolan's choice to have those few 'not so audible dialogues' is in
 **Note for #2**
 Why does the Protagonist never utter a word while he's being treated by Dr. Dentist for a painful root canal? Because we are seeing the 'inverted' version of the Protagonist. And if he ever opens his mouth, his speech would be unintelligible. But it is not always the 'inverted' version of the Protagonist. We are also seeing the 'not inverted' version of the Protagonist at times. Nolan does a bait and switch, a la Memento style before the title Tenet comes up. 
 
-I did watch the movie a second time. And I was amazed to see that there were continuity breaks between the trains on the tracks, blood stains when there should have been none, and generally vague dialogues by Dr. Dentist (because the Protagonist never utters a word). And shouldn't we be as surprised as Dr. Dentist when he mentions time running so fast that he got to rewind the clock? 
+I did watch the movie a second time. And I was amazed to see that there were continuity breaks between the trains on the tracks, blood stains when there should have been none, and generally vague dialogues by Dr. Dentist (because the Protagonist never utters a word). And shouldn't we be as surprised as Dr. Dentist when he mentions time running so fast that he's got to rewind the clock? 
 
 **Note for #3**
 I believe Tenet ends when the Protagonist bites into the suicide pill and 'dies'. The Protagonist had to eat the pill. One of his eyes was bleeding (asphyxiation from lack of inverted air?). The protective suit got a special shot of its own. If he wished to avoid talking, then it had to be the suicide pill. What about the rest of the movie, you might ask? That bit is a little dramatic, it happens between the Opera Siege and the Protagonist having a bite of the pill. And then the the title comes up. This movie might actually be Nolan's shortest 'big budget' movie. Most of Nolan's movies have titles coming up at the end. Maybe the Interstellar and now Tenet have them coming up at the starting few minutes. Which leads me to Assumption #1 and 2. 
 
 If Inception was dreams within dreams within dreams, then Tenet is a TPM within a TPM within a TPM. Tenet may also elegantly provide the solution for Interstellar paradox. If you haven't been disagreeing with me so far, I hope you do now when you read my notes on my Assumptions. 
+
+* * *
 
 __Assumption #1__ 
 For me, if there is one movie which helps me make sense of Nolan's work, it is got to be The Prestige. Why would I rely on a movie which is based on a story which is not clearly his or his brother's? The answer is because I believe The Prestige helps one feel Nolan's work. Sure, Memento helps one understand how Nolan loves to mish-mash the timelines. But feeling? That's The Prestige for you. One must always have the third act. And Nolan does it in creative ways, and true to his intent, leaves it to the audience to make sense of all of this. 
