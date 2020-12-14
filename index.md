@@ -30,7 +30,7 @@ I did watch the movie a second time. And I was amazed to see that there were con
 **Note for #3**
 I believe Tenet ends when the Protagonist bites into the suicide pill and 'dies'. The Protagonist had to eat the pill. One of his eyes was bleeding (asphyxiation from lack of inverted air?). The protective suit got a special shot of its own. If he wished to avoid talking, then it had to be the suicide pill. What about the rest of the movie, you might ask? That bit is a little dramatic, it happens between the Opera Siege and the Protagonist having a bite of the pill. And then the title comes up. This movie might actually be Nolan's shortest 'big budget' movie. Most of Nolan's movies have titles coming up at the end. Maybe the Interstellar and now Tenet have them coming up at the starting few minutes. Which leads me to Assumption #1 and 2. 
 
-If Inception was dreams within dreams within dreams, then Tenet is a TPM within a TPM within a TPM. Tenet may also elegantly provide the solution for Interstellar paradox. If you haven't been disagreeing with me so far, I hope you do now when you read my notes on my Assumptions. 
+If Inception was dreams within dreams within dreams..., then Tenet is a TPM within a TPM within a TPM.... If you haven't been disagreeing with me so far, I hope you do now when you read my notes on my Assumptions. 
 
 * * *
 
